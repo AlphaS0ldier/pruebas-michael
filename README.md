@@ -1,7 +1,7 @@
 
 # Documentación
 
->Michael Jordan Maglaque Villaluz
+>MICHAEL JORDAN MAGLAQUE VILLALUZ
 >10 de Abril de 2023
 >IES Portada Alta
 
